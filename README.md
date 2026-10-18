@@ -1,4 +1,4 @@
-I'm Fran. The plush unicorn is Peppy.
+I'm Fran. The plush unicorn is Peppy. Together, we make [peppynet](https://peppy.hr/).
 
 I spent the past few years working for [AVL in Croatia](https://www.avl.com/en-hr/locations/avl-ast-doo) on various projects in the automotive sector.
 
